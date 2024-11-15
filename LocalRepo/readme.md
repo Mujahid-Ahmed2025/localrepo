@@ -1,1 +1,1 @@
-#AlhumdulillaH mujhy samjh men code arha hai Ya shukar alhumdulillah apka boht boht
+# AlhumdulillaH mujhy samjh men code arha hai Ya AllaH shukar alhumdulillah apka boht boht shukriya hai.
